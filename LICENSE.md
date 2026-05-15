@@ -1,4 +1,4 @@
-# 
+# premium Plugin for Windscribe VPN for PC | Windscribe VPN for Windows - device-compatibility and ad-blocker is the best Windscribe VPN for PC | Windscribe VPN for Windows plugin,
 
 
 
